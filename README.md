@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **arpitsharma8975@gmail.com**
 
-- ⚡ Fun fact **m**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
